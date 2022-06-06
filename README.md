@@ -6,7 +6,7 @@ im not exactly sure what to put here
 
 probably works at async
 
-he/him, furry (protogen)
+he/him, furry (Cry)
 
 
 # Good and Underrated Music
