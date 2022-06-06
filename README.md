@@ -4,6 +4,8 @@ im a person who works on creating maps for the TRIA games on roblox
 
 im not exactly sure what to put here
 
+probably works at async
+
 he/him, furry (protogen)
 
 
