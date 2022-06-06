@@ -8,6 +8,9 @@ probably works at async
 
 he/him, furry (Cry)
 
+# You should play oneshot now
+fucking amazing game, would save the world and talk to niko again https://store.steampowered.com/app/420530/OneShot/
+
 
 # Good and Underrated Music
 im running out of ideas :[
