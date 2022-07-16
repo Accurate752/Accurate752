@@ -7,8 +7,6 @@ i work on making roblox creations a lot, mainly TRIA.OS maps though
 
 i play untitled tag game a Lot, its really fun
 
-if you want to contact me on discord for Whatever reason, you can find my alt at Federation#3395 (main account isnt given due to being more of a personal account, and not wanting it everywhere)
-
 probably works at async
 
 he/him, furry (Cry)
